@@ -1,1 +1,1 @@
-Emma - Steven Price
+A Lannister Always Pays His Debts - Ramin Djawadi
