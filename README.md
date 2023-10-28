@@ -1,1 +1,1 @@
-偽りのシンパシー - Mondo Grosso
+ - Mondo Grosso
