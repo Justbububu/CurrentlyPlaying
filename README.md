@@ -1,1 +1,1 @@
-ラビリンス - Mondo Grosso
+惑星タントラ - Mondo Grosso
