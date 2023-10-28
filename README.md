@@ -1,1 +1,1 @@
-ラビリンス - Mondo Grosso
+ - Mondo Grosso
